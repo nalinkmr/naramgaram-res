@@ -1,2 +1,0 @@
-# naramgaram-res
-naramgaram-res
